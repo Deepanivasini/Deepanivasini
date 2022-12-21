@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **deepanivi18@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1wpN5gl_7P6sz_2on_RVYcvLgxZjj9Dkt/view?usp=share_link](Resume)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1wpN5gl_7P6sz_2on_RVYcvLgxZjj9Dkt/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
